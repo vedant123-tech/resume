@@ -139,6 +139,3 @@ Passionate and results-driven Electronics and Communication Engineering student 
 - **Embedded Security** – Enhancing IoT device security & cryptography.
 
 ---
-
-This upgraded resume emphasizes your diverse skill set, projects, and leadership qualities while making it ATS-friendly and industry-ready. Let me know if you need any refinements!
-
