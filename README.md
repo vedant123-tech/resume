@@ -33,7 +33,7 @@ Passionate and results-driven Electronics and Communication Engineering student 
 ### **EDUCATION**
 
 **MIT World Peace University, Pune**\
-*Bachelor of Engineering in Electronics and Communication* (Expected 2026)
+*Bachelor of Engineering in Electronics and Communication* (Expected 2027)
 
 ---
 
